@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TashaUNI
 - 👀 I’m interested in Web Development
-- 🌱 I’m currently taking a course to Altcademy to learn Full-stack Development
+- 🌱 I’m currently taking a course at Altcademy to learn Full-stack Development
 - MY Loves are : video games , reading , pixel art , exercising and baking
 - Reach me at Killjoyy72 on Instagram
 
